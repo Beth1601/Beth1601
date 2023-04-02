@@ -1,4 +1,4 @@
-## Olá! Eu sou a Elizabeth
+## Olá! Eu sou a Elizabeth Cristina 🖐️
 
 
 - 🔭 Hoje busco uma oportunidade.
